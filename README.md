@@ -10,3 +10,7 @@ you will need to create a .txt file with your own OpenAI KEY to call to the chat
 All the Best,  Michael Wickerson
 
 the first video tutorial overview can be seen at: https://studio.youtube.com/video/svmv6HrM3bU/edit
+
+***DOWNLOAD EVERYTHING FOR PRIVATE AND EDUCATIONAL USE ONLY***
+
+***CONTACT MICHAEL WICKERSON at mwickerson999@.gmail.com FOR COMMERCIAL USE***
